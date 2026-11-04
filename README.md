@@ -218,7 +218,6 @@ For the best results, use clear, well-lit photos where faces are facing the came
 **Sheikh Sazzaduzzaman**
 
 - GitHub: [@ssheikhs](https://github.com/ssheikhs)
-- LinkedIn: [sheikhsazzaduzzaman](https://www.linkedin.com/in/sheikhsazzaduzzaman)
 
 ---
 
